@@ -1,2 +1,2 @@
 # hello-world
-Sacred acts
+All Life is a SACRED Act of Worship
